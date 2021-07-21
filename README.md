@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @theNhym
+- I’m interested in blockchain technologies 😄
+- I’m currently learning ArweaveJS and Smartweave 😬
+- 📫 at northhym@gmail.com
+- Streams games once in awhile (like a shiny pokemon) on https://dlive.tv/the_nhym
+- Check out some of my NFTs too at Refinable : https://tinyurl.com/thenhymfine
+- Nano Wallet : nano_1y6h6xr54f1yutao8tntzd1639modxmd3qqq5f6qk3yjde1ac8xdb4hkj1z9
